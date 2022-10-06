@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **manimonga2802@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tkdj5RnXmsC8GZxnXUFDxQXkS9lqVAUU/view?usp=sharing](https://drive.google.com/file/d/1tkdj5RnXmsC8GZxnXUFDxQXkS9lqVAUU/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1s5sIkmGRU943__HZUHPxMrCzTVw92u_l/view?usp=sharing)
 
 - ⚡ Fun fact **I am Funny**
 
